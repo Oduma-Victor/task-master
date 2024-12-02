@@ -1,4 +1,6 @@
-Video To my Presentation: My video link will be available soon
+My Project Features Showcase: https://drive.google.com/file/d/1TYkIuPIj0BE4zfhayCUvONEfVvyLhz_a/view?usp=sharing
+Live demo link: https://drive.google.com/file/d/1TZS6-1sjMKgMxsedAwoRlDG8kCDIe_QN/view?usp=sharing
+
 
 ---
 
